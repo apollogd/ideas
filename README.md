@@ -1,0 +1,2 @@
+# ideas
+good ideas only
